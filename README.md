@@ -1,0 +1,1 @@
+# Vocab_1-30_mnemonics
